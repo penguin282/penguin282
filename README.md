@@ -1,0 +1,2 @@
+@penguinz282です。
+scratchで、penguin_282という名前で活動しております
